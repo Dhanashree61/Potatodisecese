@@ -1,1 +1,1 @@
-# Potatodisecese
+# Potatodiscease
